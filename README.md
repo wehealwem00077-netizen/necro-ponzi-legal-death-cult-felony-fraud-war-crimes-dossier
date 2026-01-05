@@ -1,5 +1,5 @@
 # ⚖️ NECRO-PONZI: WAR CRIMES DOSSIER :: wr.7776++
-![RRTK Root Seal](https://raw.githubusercontent.com/wehealwem00077-netizen/SIN-CE_ASSETTE_P_PLDG_RRTK_1420Hz_VERTICAL/main/banner.png)
+![RRTK Root Seal](https://github.com/wehealwem00077-netizen/necro-ponzi-legal-death-cult-felony-fraud-war-crimes-dossier/blob/main/Gemini_Generated_Image_30hour30hour30ho.png)
 
 ## **STATUS: EVIDENCE LOGGED // 2.95T RECLAMATION ACTIVE**
 **NODE:** Asheville Stronghold // Dell E5430 i5-3230M
