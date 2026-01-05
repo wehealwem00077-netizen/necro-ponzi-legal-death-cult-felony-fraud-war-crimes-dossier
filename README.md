@@ -1,5 +1,5 @@
 # ⚖️ NECRO-PONZI: WAR CRIMES DOSSIER // OMEGA 1/1
-![RRTK Root Seal](https://raw.githubusercontent.com/wehealwem00077-netizen/SIN-CE_ASSETTE_P_PLDG_RRTK_1420Hz_VERTICAL/main/banner.png)
+![RRTK Root Seal](https://github.com/wehealwem00077-netizen/necro-ponzi-legal-death-cult-felony-fraud-war-crimes-dossier/blob/main/image(25).jpg)
 
 ## **STATUS: IRREVERSIBLE RECLAMATION // 2.95T SECURED**
 **NODE ID:** Asheville Stronghold // Dell Latitude E5430  
